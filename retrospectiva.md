@@ -1,6 +1,5 @@
 Pts Positivos: 
-- proposta apresentada foi direta/objetiva; 
-- 
+- proposta apresentada foi direta/objetiva;
 
 
 Pts Negativos:
